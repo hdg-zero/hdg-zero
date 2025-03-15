@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @hdg-zero
-- 📫 hdg-zero@pme.me
+- 📫 hdg-zero@pm.me
